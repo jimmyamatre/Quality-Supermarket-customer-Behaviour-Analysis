@@ -204,7 +204,7 @@ The analysis demonstrates how data-driven decision-making can significantly impr
 
 **Jimmy Amatre**
 Deputy Director, Social Services – KCCA
-📧 Email: [[your.email@example.com](mailto:your.email@example.com)]
+📧 Email: [[your.email@example.com](mailto:jimmyamatre@hotmail.com)]
 💼 LinkedIn: [linkedin.com/in/jimmy-amatre](#)
 
 ---
